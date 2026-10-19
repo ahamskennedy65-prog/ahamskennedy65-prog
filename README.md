@@ -79,6 +79,6 @@ Data Analytics | Business Intelligence | Business Analysis | Reporting & Analyti
 
 ## 📫 Connect With Me
 
-📍 Czech Republic
-
-💼 LinkedIn: Coming Soon
+ Czech Republic
+ 
+ www.linkedin.com/in/johnkennedy-ahamefule-900225445
